@@ -1,0 +1,1 @@
+# -weekly-f2-contest
